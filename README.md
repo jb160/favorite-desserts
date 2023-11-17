@@ -1,4 +1,5 @@
 ## Favorite Desserts of our team
-Listing our favorite desserts
+**Listing our favorite desserts**
 
 - Julien, crepes
+- Kara, cookies
