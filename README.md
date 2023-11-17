@@ -3,3 +3,4 @@
 
 - Julien, crepes
 - Kara, cookies
+- Renata, ice cream
