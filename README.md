@@ -3,7 +3,7 @@
 
 - Julien, creme brulee & crepes (he really can't decide)
 - Kara, cookies
-- Renata, ice cream
+- Renata, gelatto 
 - Sophia, chocolate
 - Eliott, waffle
 - Bryce, Cheesecake
