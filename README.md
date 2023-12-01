@@ -6,3 +6,4 @@
 - Renata, ice cream
 - Sophia, chocolate
 - Eliott, waffle
+- Bryce, Cheesecake
