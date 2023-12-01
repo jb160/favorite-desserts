@@ -1,7 +1,7 @@
 ## Favorite Desserts of our team
 **Listing our favorite desserts**
 
-- Julien, crepes
+- Julien, crêpes
 - Kara, cookies
 - Renata, ice cream
 - Sophia, chocolate
